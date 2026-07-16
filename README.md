@@ -1,1 +1,1 @@
-# hani.store
+# hani.store.com
